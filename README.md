@@ -21,5 +21,3 @@ If you’re looking for a zip-up hoodie that feels premium without feeling prete
 Because in the end, the best clothes don’t just cover you—they connect with you.
 
 And that’s what Chozen does beautifully. Chozen: Zip-up hoodies made for real women, real moments, and real comfort. 
-
- Tags:
